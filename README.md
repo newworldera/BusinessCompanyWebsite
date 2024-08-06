@@ -15,5 +15,4 @@ Telegram-https://t.me/+t73Q26ORYWRkYWQ1
 Whatsapp- https://whatsapp.com/channel/0029VafLdr6EawdzpspHgb0O
 
 # Output 1
-![Screenshot 2024-08-07 032436](https://github.com/user-attachments/assets/367b7be2-5abd-4363-bc6a-19d2a8ab5d1c)
-
+![Screenshot 2024-08-07 024851](https://github.com/user-attachments/assets/a76fbfa1-13e7-47b5-a336-18a8a25c1554)
